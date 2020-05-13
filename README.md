@@ -1,2 +1,2 @@
-# MohitAnand[https://github.com/MohitAnand-Hub/AniversaryMummy-Papa/]
+# MohitAnand[https://mohitanand-hub.github.io/AnniversaryMummy-Papa/]
 Mom dad marriage anniversary website
